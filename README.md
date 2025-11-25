@@ -8,4 +8,4 @@ Primarily working as a photojournalist and photo editor. I also sometimes make s
 
 Also trying to write a book.
 
-Aiming to be a better and/or smarter person every day. But sometimes I just want to play video games or binge something.
+Aiming to be a better, kinder, and/or smarter person every day. But sometimes I just want to play video games or binge something.
